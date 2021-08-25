@@ -37,7 +37,7 @@ jmj@jhu.edu
 Fall 2021 Office Hours: 12-2 pm, Mondays  
 
 
-## For more on the Black World Seminar see [here](https://www.electricmarronage.com/electricblog/2020/6/20/come-celebrate-a-black-world).
+## For more on the Black World Seminar see Dr. Nathan Connolly's essay, "Come Celebrate a Black World" published as part of the Taller Electric Marronage Fugitive Handbook [here](https://www.electricmarronage.com/electricblog/2020/6/20/come-celebrate-a-black-world).
 
 ## Syllabi
 
